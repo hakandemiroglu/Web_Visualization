@@ -1,1 +1,0 @@
-# hakandemiroglu.github.io
